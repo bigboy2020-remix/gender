@@ -1,3 +1,3 @@
 # gender
 fuck y'all niggas
-im gay and hetero fuck off if u judge me nigglet
+im gay and homo fuck off if u judge me nigglet OwO UwU
